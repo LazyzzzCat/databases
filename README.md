@@ -15,3 +15,11 @@
 # 4 Лаба
 
 # 5 Лаба
+![image](https://github.com/user-attachments/assets/03a6ccd8-2ee8-479e-8fa2-60410ab4dcea)
+![image](https://github.com/user-attachments/assets/411e9cb7-a4dd-4b6c-806b-89b8d3dde740)
+![image](https://github.com/user-attachments/assets/115f2372-0223-42d7-aa7b-bbb27d1482b5)
+![image](https://github.com/user-attachments/assets/bb24afcb-463c-4490-89c8-dae44a0f8bbb)
+![image](https://github.com/user-attachments/assets/2245ce40-6ac0-4ddb-96c4-b3e8979d6ed0)
+![image](https://github.com/user-attachments/assets/9a29d37c-f2d8-442b-863f-1a1756105d4a)
+![image](https://github.com/user-attachments/assets/84ea3dcf-be09-4a36-8e50-de76707f46d7)
+![image](https://github.com/user-attachments/assets/94aa6cdf-4f6c-4f3d-897e-3155c67e310f)
