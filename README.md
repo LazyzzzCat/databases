@@ -13,7 +13,9 @@
 ![image](https://github.com/user-attachments/assets/538bd6c2-4c0c-4119-b4c9-d94efebdd5d5)
 
 # 4 Лаба
-
+![image](https://github.com/user-attachments/assets/14f76335-1317-4d9b-b5b4-45e85263777d)
+![image](https://github.com/user-attachments/assets/17cfbcb3-c755-45b3-b6cc-e1bd2f43fbcc)
+![image](https://github.com/user-attachments/assets/f3714b00-a68f-428a-8528-d0c28b996409)
 # 5 Лаба
 ![image](https://github.com/user-attachments/assets/03a6ccd8-2ee8-479e-8fa2-60410ab4dcea)
 ![image](https://github.com/user-attachments/assets/411e9cb7-a4dd-4b6c-806b-89b8d3dde740)
